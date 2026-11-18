@@ -56,4 +56,4 @@ My primary career objective upon completing my first semester in the Master of C
 
 * **Email:** [sourenakarimdadi@gmail.com](mailto:sourenakarimdadi@gmail.com)
 * **GitHub:** [github.com/sourenaKD](https://github.com/sourenaKD)
-
+* **LinkedIn:** [https://www.linkedin.com/in/sourena-karimdadi-7913903a1?trk=contact-info]
